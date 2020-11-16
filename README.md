@@ -1,0 +1,2 @@
+# Soal-UAS
+selamat mengerjakan
